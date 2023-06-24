@@ -7,7 +7,6 @@
 
 - 📝 Passionate on exploring and upskilling myself 
 
-- 📫 How to reach me **pabishek071@gmail.com**
 
 - ⚡ Fun fact **I love Sports, especially Cricket**
 
